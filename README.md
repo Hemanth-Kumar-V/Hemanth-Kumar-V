@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **hemanth08kumarv@gmail.com**
 
-- ⚡ Fun fact **I wield the power of left-handedness while crafting code! My southpaw finesse adds an extra twist to my programming prowess, making my projects as unique as my writing style. Watch out, right-handers, we lefties are known for our creativity! 😉**
+- ⚡ Fun fact : **I'm proudly left-handed, defying the norms one code commit at a time! 💪😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
